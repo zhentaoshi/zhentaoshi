@@ -1,4 +1,4 @@
-Associate Professor
+Professor
 
 * Department of Economics, the Chinese University of Hong Kong
 
